@@ -1,6 +1,6 @@
 # Linux
-# ADD MY LINE
-<br> <a href="https://line.me/ti/p/~linux.1">LINUX™</a>
+# ADD MY LINE CREATOR 𝕱𝖑𝖆𝖘𝖍
+<br> <a href="https://line.me/ti/p/~Yuyunaj">LINUX™</a>
 
 # ADD MY CREATOR
 <br> <a href="https://line.me/ti/p/~linux.1">LINUX™</a>
